@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Tentha
+- 👀 I’m interested in Monkeys & Apes
+- 🌱 I’m currently learning GSC
+- 📫 How to reach me tenthabusiness@gmail.com
